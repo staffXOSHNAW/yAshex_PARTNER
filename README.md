@@ -1,5 +1,5 @@
-![](https://cdn.discordapp.com/icons/701158601573531699/68a76a27a31015f3b93672a8988f4558.gif?size=1024)
-# MrHAMA-PARTNER
+![](https://media.discordapp.net/attachments/848452382278811648/848589463495770132/image0_1.gif)
+# xoshnaw-PARTNER
 * Colldown
 * Anti Everyone-Here
 * Join Vc
